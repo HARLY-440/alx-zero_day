@@ -1,1 +1,1 @@
-hi hope i will be better by time
+hi fuck u i hate this 
